@@ -1,1 +1,1 @@
-Soc 756 Demography Technique II @ UW-Madison, 2025 Fall
+Soc 756 Advanced Demography Techniques @ UW-Madison, 2025 Fall
